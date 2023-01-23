@@ -7,8 +7,6 @@ Save this For Later. 😍
 
 It's nice to share information. ❤😍
 
-Drop an Emoji 💝
-
 Follow to never miss an update.....:) 💙
 
 Follow @yuutsu_code ❤
