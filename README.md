@@ -7,7 +7,7 @@ Save this For Later. 😍
 
 It's nice to share information. ❤😍
 
-Follow to never miss an update.....:) 💙
+Follow to never miss an update.....:)  💙
 
 Follow @yuutsu_code ❤
 
